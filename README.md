@@ -1,3 +1,10 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=nyafka666&label=Profile%20views&color=0e75b6&style=flat" alt="nyafka666" /> </p>
+### Hello anon...)
 
-[<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/matrix.svg' alt='matrix' height='40'>](https://matrix.to/#/@nyafka:matrix.org)  
+I have only... 
+- _[Telegram](https://t.me/nyafka666)_ 
+- _[Matrix](https://matrix.to/#/@nyafka:matrix.org)_ 
+- _nyafka666@riseup.net_ 
+
+# In learning, but know some python and bash 🐍
+
+Did you know that -1^2=-1 ? I don't know what a hell...
